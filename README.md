@@ -13,7 +13,7 @@ The group members are:
 
 * [List of group members]
 * Iboi Osezele Ejemen
-* [List of group members]
+* Joy Ojonugwa Abel 
 * [List of group members]
 * [List of group members]
 * [List of group members]
